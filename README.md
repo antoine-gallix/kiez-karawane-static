@@ -1,0 +1,1 @@
+# kiez-karawane-static
